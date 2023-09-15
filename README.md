@@ -1,2 +1,2 @@
 # genie360s.github.io
-# About Alex Mkwizu
+# Hi this Alex Mkwizu ✋ !
